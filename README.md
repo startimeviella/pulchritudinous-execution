@@ -15,20 +15,20 @@
 </p>
 
 <p align="center">
-ʸᵘᵘ / ᴺⁱⁿⁱ / ⱽᵉⁿ / ᴼᵗʰᵉʳ ⁿᵃᵐᵉˢ ᵃʳᵉ ᶠⁱⁿᵉ
+Yuu / Nini / Ven + other names are fine
 </p>
 
 <p align="center">
-ᴹⁱⁿᵒʳ / ᵀᵉᵉⁿᵃᵍᵉʳ
+Minor / Teenager
 </p>
 
 
 <p align="center">
-ᴴⁱˢᵖᵃⁿⁱᶜ  /  ᶜᵒˡᵒᵐᵇⁱᵃⁿ
+Hispanic / Colombian
 </p>
 
 <p align="center">
-ᴵˢᶠᴾ / ᴬʳᵗⁱˢᵗ
+ISFP / Artist
 </p>
 
 <p align="center">
@@ -40,12 +40,12 @@
 </p>
 
 <p align="center">
-ⱽⁱˢⁱᵗ ᵐᵃⁱⁿ ᵃᶜᶜ ᶠᵒʳ ᵐᵒʳᵉ ⁱⁿᶠᵒ
+Visit main acc for more info
 </p>
 
 
 <p align="center">
-ᴳᵒ ᵗᵒ ᶜᵃʳᵈ ᵒʳ ʳᵉⁿᵗʳʸ
+Go to card or rentry
 </p>
 
 <p align="center">
@@ -57,7 +57,7 @@
 </p>
 
 <p align="center">
-ᴵ ˡᵒᵛᵉ ᶜʰᵘᵘʸᵃ
+Chuuya <3
 </p>
 
 <p align="center">
