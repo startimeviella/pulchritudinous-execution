@@ -40,7 +40,7 @@ ISFP / Artist
 </p>
 
 <p align="center">
-Visit main acc for more info
+Visit main acc for more info or just read card on this acc!
 </p>
 
 
