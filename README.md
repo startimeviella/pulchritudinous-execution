@@ -45,7 +45,7 @@ Visit main acc for more info or just read card on this acc!
 
 
 <p align="center">
-Go to card or rentry
+Go to card or rentry on main acc
 </p>
 
 <p align="center">
