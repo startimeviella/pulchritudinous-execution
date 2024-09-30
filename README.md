@@ -12,4 +12,6 @@
 </p>
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-
+<p align="center">
+<img width="800" src="https://files.catbox.moe/lymq7p.png" alt="Grrr">
+</p>
